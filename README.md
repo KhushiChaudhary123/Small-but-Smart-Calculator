@@ -53,6 +53,3 @@ Khushi Chaudhary
 Student | Future Software Engineer 
 Author
 
-Khushi Chaudhary
-Student | Future Software Engineer 🚀
-How I can add this
